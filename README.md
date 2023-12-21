@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **C++, Java, Android**
 
-- 📫 How to reach me **https://twitter.com/k_vishalll | https://www.instagram.com/its_vishuuuu**
+- 📫 How to reach me **[Twitter](https://twitter.com/k_vishalll) | [LinkedIn](https://www.linkedin.com/in/k-vishall/) | [Instagram](https://www.instagram.com/its_vishuuuu)**
 
 - ⚡ Fun fact **I am funny**
 
