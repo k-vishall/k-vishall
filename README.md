@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **C++, Java, Android**
 
-- 📫 How to reach me **vishalsharmaldh9@gmail.com**
+- 📫 How to reach me **https://twitter.com/k_vishalll | https://www.instagram.com/its_vishuuuu**
 
 - ⚡ Fun fact **I am funny**
 
